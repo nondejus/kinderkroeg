@@ -1,1 +1,9 @@
-# kinderfeestjes-poetry
+-------------------------
+| kinderfeestjes-poetry |
+-------------------------
+
+# jules deelder
+https://nl.wikipedia.org/wiki/Jules_Deelder
+
+# brandweerkantine
+http://brandweerkantine.nl/en/frontpage-en/
